@@ -1,0 +1,6 @@
+- 👋 Olá, eu sou Flávio Fernandes (@flaxvio) 
+- 👀 Estou em transicição de carreira.
+- 🌱 Sou aluno do curso de Tecnologia da Informação da Univesp (Universidade Virtual do Estado de São Paulo).
+- 📫 Você entrar em contato comigo pelo e-mail: flaxvio21@gmail.com ou pelo LinkedIN @flaxvio.
+- 😄 Meus pronomes são ELE/DELE - HE/HIS/HIM.
+- ⚡ Fun fact: Representei o polo Itápolis da Univesp no gameshow "Quem sabe, ganha!", que é produzido pela TV Cultura. E o meu time foi o vencedor!
